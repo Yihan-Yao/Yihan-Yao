@@ -1,3 +1,3 @@
 - Hi, I’m Yihan Yao
-- I’m currently learning Master of Computing and Innovation at University of Adelaide
-- Reach me at yihan.yao@student.adelaide.edu.au
+- A recent graduate at University of Adelaide, Master of Computing and Innovation
+- Reach me at yihan.yao97@gmail.com
